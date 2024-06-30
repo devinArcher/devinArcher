@@ -2,7 +2,7 @@
 (art credit to si_ku)<br><br>
 ‍ㅤ            ﹒    @Devin Archer!  ﹕☆<br>
                　    ☆　┈ @Can also be called Anon or Piano <br>
-ㅤ         ﹟    any pronouns ㅤ:: 🎠<br>
+ㅤ         ﹟    any pronouns ㅤ:: 6teen 🎠<br>
                    :   🎐 Writer ! Artist ﹐<br>
   　    ☆　┈ @SE.Asian American<br>
   　 ˑ    𓂂    🇵🇭     ͡   ͡  <br>
