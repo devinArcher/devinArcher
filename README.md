@@ -13,6 +13,7 @@
               My sister has been having a rough time and I want to buy something to cheer her up a bit, something I couldn't buy her last christmas. <br>
               some references to my art can be found here ====> https://devs-house.neocities.org/comics/rettamkard/gallery <br>
               but it is not a complete gallery of my work by any means, if you want to see some more of my recent work or are interested in commisioning me, message me on discord at user: mentaidickwad <br> note I will not draw NSFW, that also includes extreme gore <br>
+<img src="https://i.ibb.co/Z1Wmph2/imagwewewee.png">
                         Thank you for reading either way... ♡ˊˎ- <br>
          ﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍ <br>
        
