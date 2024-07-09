@@ -9,7 +9,7 @@
        ୨୧ I luv my OCs, join my discord if you want to talk with me about them... don't be shy... .ᐟ <br>
                 ﹉﹉﹉﹉﹉୨♡୧﹉﹉﹉﹉﹉ <br>
               ୨୧ ‼꒰ Hey, before you go, my commisions are open for a limited time!  ꒱‼ ୨୧
-              Not really an emergency but I kind of want this money fast, the commisions cost is a 70-80 dollar amazon gift card exactly. <br>
+              Not really an emergency but I kind of want this money fast, the commisions cost is a 70-80 dollar amazon gift card exactly. If you can offer less than that we can discuss, but I'd like to meet my goal quickly. <br>
               My sister has been having a rough time and I want to buy something to cheer her up a bit, something I couldn't buy her last christmas. <br>
               some references to my art can be found here ====> https://devs-house.neocities.org/comics/rettamkard/gallery <br>
               but it is not a complete gallery of my work by any means, if you want to see some more of my recent work or are interested in commisioning me, message me on discord at user: mentaidickwad <br>
