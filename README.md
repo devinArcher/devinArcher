@@ -1,7 +1,7 @@
 <img src="https://i.pinimg.com/originals/5d/85/07/5d8507997c336313e6b2208947fc36ff.jpg">
 (art credit to si_ku)<br><br>
 ‍ㅤ            ﹒    @Devin Archer!  ﹕☆<br>
-               　    ☆　┈ @Can also be called Anon or Piano <br>
+               　    ☆　┈ @Can also be called Mouse or Piano <br>
 ㅤ         ﹟    any pronouns ㅤ:: 6teen 🎠<br>
                    :   🎐 Writer ! Artist ﹐<br>
   　    ☆　┈ @SE.Asian American<br>
