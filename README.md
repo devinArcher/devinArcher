@@ -1,5 +1,4 @@
-<img src="https://i.pinimg.com/originals/5d/85/07/5d8507997c336313e6b2208947fc36ff.jpg">
-(art credit to si_ku)<br><br>
+<img src="https://i.pinimg.com/originals/f1/b5/ba/f1b5ba9893116e3b001ebe928bc79ac7.gif" width="900" height="500">
 ‍ㅤ            ﹒    @Devin Archer!  ﹕☆<br>
                　    ☆　┈ @Can also be called Mouse or Piano <br>
 ㅤ         ﹟    any pronouns ㅤ:: 6teen 🎠<br>
