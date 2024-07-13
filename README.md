@@ -1,6 +1,6 @@
 <img src="https://i.pinimg.com/originals/f1/b5/ba/f1b5ba9893116e3b001ebe928bc79ac7.gif" width="700" height="300">
 ‍ㅤ            ﹒    @Devin Archer!  ﹕☆<br>
-               　    ☆　┈ @Can also be called Mouse or Piano <br>
+               　    ☆　┈ @Can also be called Mr. Philosopher stone .edu (formally), Philo, Stone, or when fem: Piano <br>
 ㅤ         ﹟    any pronouns ㅤ:: 6teen 🎠<br>
                    :   🎐 Writer ! Artist ﹐<br>
   　    ☆　┈ @SE.Asian American<br>
