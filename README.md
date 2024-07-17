@@ -8,6 +8,7 @@
        ୨୧ I luv my OCs, join my discord if you want to talk with me about them... don't be shy... .ᐟ <br>
                 ﹉﹉﹉﹉﹉୨♡୧﹉﹉﹉﹉﹉ <br>
 Full essay on the etics internet community conflict IS IN MY RENTRY!!!🔥🔥 RIGHT THERE!! https://rentry.co/EthicsofConflictinanOnlineCommunity <--- HERE!!. I'm so excited to be sharing this with you guys I spent like 3 days on this shit. Very fucking tired. Be warned, there may be some gramatical errors because I haven't throughly proof read it yet but I promise I put a lot of effort in terms of research and substance.✌ <br>
+EDIT: SLIGHTLY REVISED 🔥 if you have any questions feel free to ask on my Retrospring<br>
               ♡ˊˎ- <br>
 <img src="https://i.pinimg.com/originals/89/2a/b7/892ab776279414977933b566575cf62d.gif"> 
 "You wanna love like Nelson, you wanna be like Nelson. You wanna walk in his shoes, but your peacemaking seldom" <br>
