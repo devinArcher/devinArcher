@@ -7,7 +7,7 @@
   　 ˑ    𓂂    🇵🇭     ͡   ͡  <br>
        ୨୧ I luv my OCs, join my discord if you want to talk with me about them... don't be shy... .ᐟ <br>
                 ﹉﹉﹉﹉﹉୨♡୧﹉﹉﹉﹉﹉ <br>
-Full essay on the etics internet community conflict coming soon to my Rentry. Be ready. The old github rant is still in my rentry if you want receipts (Note it's no where near the quality my essay is going to be). As always, much love to you guys. Stay safe out there and always keep trying to be the best you can be, it's worth it in the end. ✌ <br>
+Full essay on the etics internet community conflict IS IN MY RENTRY!!!🔥🔥 RIGHT THERE!! https://rentry.co/EthicsofConflictinanOnlineCommunity <--- HERE!!. I'm so excited to be sharing this with you guys I spent like 3 days on this shit. Very fucking tired. Be warned, there may be some gramatical errors because I haven't throughly proof read it yet but I promise I put a lot of effort in terms of research and substance.✌ <br>
               ♡ˊˎ- <br>
 <img src="https://i.pinimg.com/originals/89/2a/b7/892ab776279414977933b566575cf62d.gif"> 
 "You wanna love like Nelson, you wanna be like Nelson. You wanna walk in his shoes, but your peacemaking seldom" <br>
