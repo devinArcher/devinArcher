@@ -34,6 +34,6 @@ EDIT: SLIGHTLY REVISED 🔥 if you have any questions feel free to ask on my Ret
 <img src="https://i.pinimg.com/564x/5f/00/13/5f001317a0a3a4e9b8ea63ec9eb8b521.jpg">
 If you tear someone down, you remain in the same place you've always been, but the harm you've done will take longer to heal than it did to cause. <br>
 If you build yourself up, you move past the place where you'd otherwise be stagnant. You're able to heal yourself and know your worth more than anyone else will. <br>
-Your peers who hurt you will either stay stagnant and only serve to harm themselves, or grow and heal with you. Either way, it will not be at your expense. <br>
+Your peers who engage in harm will either stay stagnant and only serve to harm themselves, or grow and heal with you. Either way, it will not be at your expense. <br>
 Pick your battles. <br>
 Hate will never make you happier. 
