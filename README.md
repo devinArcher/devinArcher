@@ -30,4 +30,10 @@ EDIT: SLIGHTLY REVISED 🔥 if you have any questions feel free to ask on my Ret
 </a><a href="https://www.glitter-graphics.com"><img src="http://dl.glitter-graphics.net/pub/2545/2545451ih1vh1dljn.gif" width="150" height="20"/></a><a href="https://www.glitter-graphics.com"><img src="http://dl9.glitter-graphics.net/pub/223/223979qnh6dwmabq.gif" width="150" height="20"/></a><a href="https://www.glitter-graphics.com"><img src="http://dl3.glitter-graphics.net/pub/909/909043q79g7enuyi.gif" width="150" height="20"/>
 <!-- BLACK -->
 </a><a href="https://www.glitter-graphics.com"><img src="http://dl6.glitter-graphics.net/pub/1562/1562976qwld88al6b.gif" width="150" height="20"/> </a><a href="https://www.glitter-graphics.com"><img src="http://dl9.glitter-graphics.net/pub/439/439699stu545t70f.gif" width="150" height="20"/></a><a href="https://www.glitter-graphics.com"><img src="http://dl6.glitter-graphics.net/pub/1559/1559196syxmxd7922.gif" width="150" height="20"/></a><a href="https://www.glitter-graphics.com"><img src="http://dl10.glitter-graphics.net/pub/2035/2035780lvbty327im.gif" width="150" height="20"/></a><a href="https://www.glitter-graphics.com"><img src="http://dl10.glitter-graphics.net/pub/1081/1081290egtrwlgawy.gif" width="150" height="20"/> 
-</p>
+</p> <br>
+<img src="https://i.pinimg.com/564x/5f/00/13/5f001317a0a3a4e9b8ea63ec9eb8b521.jpg">
+If you tear someone down, you remain in the same place you've always been, but the harm you've done will take longer to heal than it did to cause. <br>
+If you build yourself up, you move past the place where you'd otherwise be stagnant. You're able to heal yourself and know your worth more than anyone else will. <br>
+Your peers who hurt you will either stay stagnant and only serve to harm themselves, or grow and heal with you. Either way, it will not be at your expense. <br>
+Pick your battles. <br>
+Hate will never make you happier. 
