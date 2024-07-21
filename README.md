@@ -11,7 +11,7 @@ Full essay on <b>the Ethics Internet Youth Community Conflict</b> IS IN MY RENTR
 if you have any questions feel free to ask on my Retrospring<br>
 ﹉﹉﹉﹉﹉୨♡୧﹉﹉﹉﹉﹉ <br>
 UPDATE: <br>
-Essay on conflict NOW FOR A YOUNGER AUDIENCE!! With pictures and subway surfers gameplay included. This "Essay" is much shorter. It doesn't talk about the same thing as the first essay, as it focuses more on conflict that happens <b>on</b> docks not just with people who happen to be there. If I link this to you it's likely because I see you getting wayyyyy to invested in a conflict at docks and I can't exhaust the energy it takes to explain things to you myself. <br>
+Essay on conflict NOW FOR A YOUNGER AUDIENCE!! With pictures and subway surfers gameplay included. This "Essay" is much shorter. It doesn't talk about the same thing as the first essay, as it focuses more on conflict that happens <b>on</b> docks not just with people who happen to be there. Don't expect it to be the same quality as the other one since this is a more passive essay, still useful info though. If I link this to you it's likely because I see you getting wayyyyy to invested in a conflict at docks and I can't exhaust the energy it takes to explain things to you myself. <br>
 SIMPLIFIED DIFFERENT TOPIC BUT STILL ABOUT CONFLICT ESSAY!!!! --> https://rentry.co/PTdocksfightclub <--- RIGHT THERE!
               ♡ˊˎ- <br>
 <img src="https://i.pinimg.com/originals/89/2a/b7/892ab776279414977933b566575cf62d.gif"> 
