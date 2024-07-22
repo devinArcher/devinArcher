@@ -9,6 +9,7 @@
                 ﹉﹉﹉﹉﹉୨♡୧﹉﹉﹉﹉﹉ <br>
 Full essay on <b>the Ethics Internet Youth Community Conflict</b> IS IN MY RENTRY!!!🔥🔥 RIGHT THERE!! https://rentry.co/EthicsofConflictinanOnlineCommunity <--- HERE!!. I'm so excited to be sharing this with you guys I spent like 3 days on this shit. Very fucking tired. Be warned, there may be some gramatical errors because I haven't throughly proof read it yet but I promise I put a lot of effort in terms of research and substance.✌ <br>
 if you have any questions feel free to ask on my Retrospring<br>
+https://retrospring.net/@DevinArcher <br>
 ﹉﹉﹉﹉﹉୨♡୧﹉﹉﹉﹉﹉ <br>
 UPDATE: <br>
 New essay on conflict NOW FOR A YOUNGER AUDIENCE!! With pictures and subway surfers gameplay included. This "Essay" is much shorter. It doesn't talk about the same thing as the first essay, as it focuses more on conflict that happens <b>on</b> docks not just with people who happen to be there. Don't expect it to be the same quality as the other one since this is a more passive essay, still useful info though. If I link this to you it's likely because I see you getting wayyyyy to invested in a conflict at docks and I can't exhaust the energy it takes to explain things to you myself. <br>
