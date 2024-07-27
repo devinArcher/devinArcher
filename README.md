@@ -8,7 +8,7 @@
        ୨୧ I luv my OCs, join my discord if you want to talk with me about them... don't be shy... .ᐟ <br>
                 ﹉﹉﹉﹉﹉୨♡୧﹉﹉﹉﹉﹉ <br>
 Full essay on <b>the Ethics Internet Youth Community Conflict</b> IS IN MY RENTRY!!!🔥🔥 RIGHT THERE!! https://rentry.co/EthicsofConflictinanOnlineCommunity <--- HERE!!. I'm so excited to be sharing this with you guys I spent like 3 days on this shit. Very fucking tired. Be warned, there may be some gramatical errors because I haven't throughly proof read it yet but I promise I put a lot of effort in terms of research and substance.✌ <br>
-if you have any questions feel free to ask on my Retrospring<br>
+if you have any questions feel free to ask on my Retrospring. edit: I HAVE PUSH NOTIFICATIONS ON NOW so I should answer faster...<br>
 https://retrospring.net/@DevinArcher <br>
 ﹉﹉﹉﹉﹉୨♡୧﹉﹉﹉﹉﹉ <br>
 UPDATE: <br>
@@ -37,9 +37,4 @@ SIMPLIFIED DIFFERENT TOPIC BUT STILL ABOUT CONFLICT ESSAY!!!! --> https://rentry
 </a><a href="https://www.glitter-graphics.com"><img src="http://dl6.glitter-graphics.net/pub/1562/1562976qwld88al6b.gif" width="150" height="20"/> </a><a href="https://www.glitter-graphics.com"><img src="http://dl9.glitter-graphics.net/pub/439/439699stu545t70f.gif" width="150" height="20"/></a><a href="https://www.glitter-graphics.com"><img src="http://dl6.glitter-graphics.net/pub/1559/1559196syxmxd7922.gif" width="150" height="20"/></a><a href="https://www.glitter-graphics.com"><img src="http://dl10.glitter-graphics.net/pub/2035/2035780lvbty327im.gif" width="150" height="20"/></a><a href="https://www.glitter-graphics.com"><img src="http://dl10.glitter-graphics.net/pub/1081/1081290egtrwlgawy.gif" width="150" height="20"/> 
 </p> <br>
 <img src="https://i.pinimg.com/564x/5f/00/13/5f001317a0a3a4e9b8ea63ec9eb8b521.jpg">
-If you tear someone down, you remain in the same place you've always been, but the harm you've done will take longer to heal than it did to cause. <br>
-If you build yourself up, you move past the place where you'd otherwise be stagnant. You're able to heal yourself and know your worth more than anyone else will. <br>
-Your peers who engage in harm will either stay stagnant and only serve to harm themselves, or grow and heal with you. Either way, it will not be at your expense. <br>
-Pick your battles. <br>
-Hate alone will never make you happier. 
 <img src="https://i.pinimg.com/736x/95/13/e5/9513e5b9428c4049834590b44ed8ab3a.jpg" width="300px"hight="300px"/>
