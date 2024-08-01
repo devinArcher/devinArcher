@@ -1,4 +1,5 @@
-<img src="https://i.pinimg.com/originals/f1/b5/ba/f1b5ba9893116e3b001ebe928bc79ac7.gif" width="700" height="300">
+<img src="https://i.pinimg.com/originals/a0/c3/04/a0c304a8b595d631a54084ecdfc3026a.gif" width="700" height="400">
+My wife ^^^ <br>
 ‍ㅤ            ﹒    @Devin Archer!  ﹕☆<br>
                　    ☆　┈ @Can also be called Mr. Philosopher Stone.edu (formally), Stone, or when fem: Piano <br>
 ㅤ         ﹟    any pronouns ㅤ:: 6teen 🎠<br>
