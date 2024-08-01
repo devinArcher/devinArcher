@@ -5,7 +5,7 @@
                    :   🎐 Writer ! Artist ﹐<br>
   　    ☆　┈ @SE.Asian American<br>
   　 ˑ    𓂂    🇵🇭     ͡   ͡  <br>
-       ୨୧ I luv my OCs, join my discord if you want to talk with me about them... don't be shy... .ᐟ <br>
+       ୨୧ I luv my OCs, ask to join my discord if you want to talk with me about them... don't be shy...ᐟ <br>
                 ﹉﹉﹉﹉﹉୨♡୧﹉﹉﹉﹉﹉ <br>
 Full essay on <b>the Ethics Internet Youth Community Conflict</b> IS IN MY RENTRY!!!🔥🔥 RIGHT THERE!! https://rentry.co/EthicsofConflictinanOnlineCommunity <--- HERE!!. I'm so excited to be sharing this with you guys I spent like 3 days on this shit. Very fucking tired. Be warned, there may be some gramatical errors because I haven't throughly proof read it yet but I promise I put a lot of effort in terms of research and substance.✌ <br>
 if you have any questions feel free to ask on my Retrospring. edit: I HAVE PUSH NOTIFICATIONS ON NOW so I should answer faster...<br>
