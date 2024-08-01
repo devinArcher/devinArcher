@@ -39,6 +39,6 @@ SIMPLIFIED DIFFERENT TOPIC BUT STILL ABOUT CONFLICT ESSAY!!!! --> https://rentry
 <img src="https://i.pinimg.com/564x/5f/00/13/5f001317a0a3a4e9b8ea63ec9eb8b521.jpg"> <br>
 I have no idea who these tiktok people are but I like posting these pictures I find on pinterest, switching them out everyonce in a while. Because everyone needs a bit of a positive message in their life.<br>
 <img src="https://i.pinimg.com/564x/58/0b/e5/580be560fc33961f40c689cff4fe1ead.jpg">
-This is me if I was gohan color picked from me. This is the first time I've drawn in the DBZ artstyle and I'll probobly try again some other time.
+This is me if I was gohan color picked from me. This is the first time I've drawn in the DBZ artstyle and I'll probobly try again some other time. It looks goofy as HELL but don't make fun of me be nice...
 <img src="https://i.ibb.co/m52VG2S/Untitled178-20240801120829.png"width="200" height="200"/>
 
