@@ -1,5 +1,5 @@
 <img src="https://i.pinimg.com/originals/a0/c3/04/a0c304a8b595d631a54084ecdfc3026a.gif" width="700" height="400">
-My wife ^^^ <br>
+My wife ^^^ (Along with a lot of other DBZ fiends- I am partial to DBZ villians...)<br>
 ‍ㅤ            ﹒    @Devin Archer!  ﹕☆<br>
                　    ☆　┈ @Can also be called Mr. Philosopher Stone.edu (formally), Stone, or when fem: Piano <br>
 ㅤ         ﹟    any pronouns ㅤ:: 6teen 🎠<br>
@@ -8,13 +8,10 @@ My wife ^^^ <br>
   　 ˑ    𓂂    🇵🇭     ͡   ͡  <br>
        ୨୧ I luv my OCs, ask to join my discord if you want to talk with me about them... don't be shy...ᐟ <br>
                 ﹉﹉﹉﹉﹉୨♡୧﹉﹉﹉﹉﹉ <br>
-Full essay on <b>the Ethics Internet Youth Community Conflict</b> IS IN MY RENTRY!!!🔥🔥 RIGHT THERE!! https://rentry.co/EthicsofConflictinanOnlineCommunity <--- HERE!!. I'm so excited to be sharing this with you guys I spent like 3 days on this shit. Very fucking tired. Be warned, there may be some gramatical errors because I haven't throughly proof read it yet but I promise I put a lot of effort in terms of research and substance.✌ <br>
-if you have any questions feel free to ask on my Retrospring. edit: I HAVE PUSH NOTIFICATIONS ON NOW so I should answer faster...<br>
+Full essay on <b>the Ethics Internet Youth Community Conflict</b> IS IN MY RENTRY!!!🔥🔥 RIGHT THERE!! https://rentry.co/EthicsofConflictinanOnlineCommunity <--- HERE!!. Other essays on my main rentry page. <br>
+if you have any questions or recomendations feel free to say them on my Retrospring. edit: I HAVE PUSH NOTIFICATIONS ON NOW so I should answer faster...<br>
 https://retrospring.net/@DevinArcher <br>
 ﹉﹉﹉﹉﹉୨♡୧﹉﹉﹉﹉﹉ <br>
-UPDATE: <br>
-New essay on conflict NOW FOR A YOUNGER AUDIENCE!! With pictures and subway surfers gameplay included. This "Essay" is much shorter. It doesn't talk about the same thing as the first essay, as it focuses more on conflict that happens <b>on</b> docks not just with people who happen to be there. Don't expect it to be the same quality as the other one since this is a more passive essay, still useful info though. If I link this to you it's likely because I see you getting wayyyyy to invested in a conflict at docks and I can't exhaust the energy it takes to explain things to you myself. <br>
-SIMPLIFIED DIFFERENT TOPIC BUT STILL ABOUT CONFLICT ESSAY!!!! --> https://rentry.co/PTdocksfightclub <--- RIGHT THERE!
               ♡ˊˎ- <br>
 <img src="https://i.pinimg.com/originals/89/2a/b7/892ab776279414977933b566575cf62d.gif"> 
 "You wanna love like Nelson, you wanna be like Nelson. You wanna walk in his shoes, but your peacemaking seldom" <br>
