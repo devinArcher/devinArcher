@@ -9,7 +9,7 @@ My wife ^^^ (Along with a lot of other DBZ fiends- I am partial to DBZ villians.
        ୨୧ I luv my OCs, ask to join my discord if you want to talk with me about them... don't be shy...ᐟ <br>
                 ﹉﹉﹉﹉﹉୨♡୧﹉﹉﹉﹉﹉ <br>
 Full essay on <b>the Ethics Internet Youth Community Conflict</b> IS IN MY RENTRY!!!🔥🔥 RIGHT THERE!! https://rentry.co/EthicsofConflictinanOnlineCommunity <--- HERE!!. Other essays on my main rentry page. -->  https://rentry.co/mainpagedev <br>
-if you have any questions or recomendations feel free to say them on my Retrospring. edit: I HAVE PUSH NOTIFICATIONS ON NOW so I should answer faster...<br>
+if you have any questions or recomendations feel free to say them on my Retrospring. edit (again): THE PUSH NOTIFICATIONS DO NOT WORK!! You will have to whisp me or something to check it ToT, otherwise expect a 2-3 day wait time.<br>
 https://retrospring.net/@DevinArcher <br>
 ﹉﹉﹉﹉﹉୨♡୧﹉﹉﹉﹉﹉ <br>
               ♡ˊˎ- <br>
