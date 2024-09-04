@@ -8,6 +8,9 @@ My wife ^^^ (Along with a lot of other DBZ fiends- I am partial to DBZ villians.
   　 ˑ    𓂂    🇵🇭     ͡   ͡  <br>
        ୨୧ I luv my OCs, ask to join my discord if you want to talk with me about them... don't be shy...ᐟ <br>
                 ﹉﹉﹉﹉﹉୨♡୧﹉﹉﹉﹉﹉ <br>
+MILITARY GENERALS DNI!! (joke) <br>
+In all seriousness I just try to block people I don't fw, but absolutely avoid me if you're the type to harass people. If you're the type to go out and yell at people online for any reason, just don't bother trying to get close with me. Alright?<br>
+﹉﹉﹉﹉﹉୨♡୧﹉﹉﹉﹉﹉ <br>
 Full essay on <b>the Ethics Internet Youth Community Conflict</b> IS IN MY RENTRY!!!🔥🔥 RIGHT THERE!! https://rentry.co/EthicsofConflictinanOnlineCommunity <--- HERE!!. Other essays on my main rentry page. -->  https://rentry.co/mainpagedev <br>
 if you have any questions or recomendations feel free to say them on my Retrospring. edit (again): THE PUSH NOTIFICATIONS DO NOT WORK!! You will have to whisp me or something to check it ToT, otherwise expect a 2-3 day wait time.<br>
 https://retrospring.net/@DevinArcher <br>
@@ -36,5 +39,5 @@ https://retrospring.net/@DevinArcher <br>
 </p> <br>
 <img src="https://i.pinimg.com/564x/5f/00/13/5f001317a0a3a4e9b8ea63ec9eb8b521.jpg"> <br>
 I have no idea who these tiktok people are but I like posting these pictures I find on pinterest, switching them out everyonce in a while. Because everyone needs a bit of a positive message in their life.<br>
-<img src="https://i.pinimg.com/564x/58/0b/e5/580be560fc33961f40c689cff4fe1ead.jpg">
+<img src="https://i.pinimg.com/564x/11/3c/e1/113ce163fb0128939bc89a7cdda2a213.jpg">
 
