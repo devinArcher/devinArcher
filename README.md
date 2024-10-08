@@ -13,7 +13,7 @@ In all seriousness I just try to block people I don't fw, but absolutely avoid m
 ﹉﹉﹉﹉﹉୨♡୧﹉﹉﹉﹉﹉ <br>
 Full essay on <b>the Ethics Internet Youth Community Conflict</b> IS IN MY RENTRY!!!🔥🔥 RIGHT THERE!! https://rentry.co/EthicsofConflictinanOnlineCommunity <--- HERE!!. Other essays on my main rentry page. -->  https://rentry.co/mainpagedev <br>
 if you have any questions or recomendations feel free to say them on my Strawpage. If you want a fast response, whisp me or something to check it ToT, otherwise expect a possible 2-4 day wait time if I'm busy.<br>
-[https://mentaidickwad.straw.page/](https://mentaidickwad.straw.page/)<br>
+https://mentaidickwad.straw.page<br>
 ﹉﹉﹉﹉﹉୨♡୧﹉﹉﹉﹉﹉ <br>
               ♡ˊˎ- <br>
 <img src="https://i.pinimg.com/originals/89/2a/b7/892ab776279414977933b566575cf62d.gif"> 
