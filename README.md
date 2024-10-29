@@ -9,7 +9,7 @@
                 ﹉﹉﹉﹉﹉୨♡୧﹉﹉﹉﹉﹉ <br>
 <img src="https://i.pinimg.com/originals/74/58/a6/7458a6c41e2a77795869742c1aaf11c3.gif">
  <br>
-To those it may concern, I have recently emptied out my friendslist. If you would like to talk to me about this, I am more than willing to, but I have initially done so silently. I have likely distanced myself from you as a mutal over time. I'm doing this because I've gone through a lot of changes in my ideals, and it started to disturb me how many people on my friendslist strayed so far from my ideals. I think you would probobly say the same. <br>
+To those it may concern, I have recently emptied out my friendslist. If you would like to talk to me about this, I am more than willing to, but I have initially done so silently. I have likely distanced myself from you as a mutal over time. I'm doing this because I've gone through a lot of changes in my ideals, and it started to disturb me how many people on my friendslist strayed so far from my ideals. I think you would probobly say the same. I also kinda just unfriended people I didnt recognize/have a note on. If you wanna still interact with me you can, but I'll probobly continue to keep my distance.<br>
 <br> Since these ideas center things I hold dear like empathy and reflection, it was hard for me to push aside to keep connections. I hope you understand, signed, Stone. <br>
 ﹉﹉﹉﹉﹉୨♡୧﹉﹉﹉﹉﹉ <br>
 <img src="https://i.pinimg.com/originals/17/cc/f7/17ccf7cae2ab7551a2295bd293077705.gif">
