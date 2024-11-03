@@ -5,7 +5,8 @@
                    :   🎟 Writer ! Artist ! profiction﹐<br>
   　    ☆　┈ @SE.Asian American<br>
   　 ˑ    𓂂    🇵🇭     ͡   ͡  <br>
-       ୨୧ I luv meeting new people interested in talking to me! If you think I'm cool after checking out my stuff, I'll probobly think you're cool too, because obviously we must have something in common, right?ᐟ ALSO PLEASE TELL ME IF YOU WANT TO PLAY MAHJONG OR YUGIOH WITH ME PLEASE PLEAS PLEASE <br> Hide me freely if you don't fw me being profiction. I don't talk about it with people who don't give explicit consent for me to do so, but if it bothers you that much anyways then I encourage you to, yes, block me. Also, don't bother my current friends about this shit. I don't care what you try to say to me, but if you fuck with /them/, then we have a problem.<br>
+<br>
+       ୨୧ I luv meeting new people interested in talking to me! If you think I'm cool after checking out my stuff, I'll probobly think you're cool too, because obviously we must have something in common, right?ᐟ ALSO PLEASE TELL ME IF YOU WANT TO PLAY MAHJONG OR YUGIOH WITH ME PLEASE PLEAS PLEASE <br> Hide me freely if you don't fw me being profiction. I don't talk about it with people who don't give explicit consent for me to do so, but if it bothers you that much anyways then I encourage you to, yes, block me. Also, don't bother my current friends about this, they know. I don't care what you try to say to me, but if you bring your issues with me to /them/, then we have a problem.<br>
                 ﹉﹉﹉﹉﹉୨♡୧﹉﹉﹉﹉﹉ <br>
 <img src="https://i.pinimg.com/originals/74/58/a6/7458a6c41e2a77795869742c1aaf11c3.gif">
  <br>
