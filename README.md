@@ -47,5 +47,5 @@ Some of you are like Pierre and will be eaten by a lion someday, very soon. <br>
 </p> <br>
 <img src="https://i.pinimg.com/564x/5f/00/13/5f001317a0a3a4e9b8ea63ec9eb8b521.jpg"> <br>
 I have no idea who these tiktok people are but I like posting these pictures I find on pinterest, switching them out everyonce in a while. Because everyone needs a bit of a positive message in their life.<br>
-<img src="https://i.pinimg.com/564x/db/8f/96/db8f96c9d9f38efedc7cb1a86d402920.jpg" height="600">
+<img src="https://i.pinimg.com/474x/4e/ba/cd/4ebacd4e9988cd260d51353f9718ea9f.jpg" height="600">
 
