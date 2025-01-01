@@ -1,6 +1,6 @@
 <img src="https://i.pinimg.com/564x/cf/ea/fd/cfeafdcdc515c34a4c5923bc6a045b9f.jpg">
 ‍ㅤ            ﹒    @Devin Archer!  ﹕☆ <br>
-               　    ☆　┈ @Can also be called Mr. Philosopher Stone.edu (formally), Stone, or when fem: Piano <br>
+               　    ☆　┈ @Can also be called Mr./Ms. Philosopher Stone.edu (formally), Stone <br>
 ㅤ         ﹟    any pronouns ㅤ:: 7teen 🧶<br>
                    :   🎟 Writer ! Artist ! profiction﹐<br>
   　    ☆　┈ @SE.Asian American<br>
