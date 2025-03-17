@@ -8,20 +8,14 @@
 
  ![VisitCounter](https://komarev.com/ghpvc/?username=devinArcher&color=yellowgreen&label=Page+Visits+since+11/2/2/2024&abbreviated=true)
 <br>
-       ୨୧ I luv meeting new people interested in talking to me! If you think I'm cool after checking out my stuff, I'll probobly think you're cool too, because obviously we must have something in common, right?ᐟ <br> Hide me freely if you don't fw me being profiction. I still try to hang out on main docks (I leave the tree esp when theres discouse, I don't like the tree arguments.) If you nicely interact with me, I'll interact with you. I don't talk about dark/comships with people who don't give explicit consent for me to do so, but if it bothers you that much anyways then I encourage you to, yes, block me. Also, don't bother my current friends about this, they know. I don't care what you try to say to me, but if you bring your issues with me to /them/, then we have a problem.<br>
-I am currently trying to learn Mandarin (Taiwan, traditional specifically). I am very low level right now but if you know both Mandarin and English I would love to get some conversational experience ^^<br>
+       ୨୧ I like to touch grass now, so i see no need for a bio. I do not respond to people who do not do whats best for themselves, come back to me when you love yourself. blehhhh!! I don't shut up, I grow up, and when I--<br>
                 ﹉﹉﹉﹉﹉୨♡୧﹉﹉﹉﹉﹉ <br>
 <img src="https://i.pinimg.com/originals/74/58/a6/7458a6c41e2a77795869742c1aaf11c3.gif">
  <br>
-For those who interacted before they knew I was proship! If you want me to remove you from my strawpage for whatever reason, I will gladly comply silently. <br>
-<b>I am uninterested in debates over this. You likely have been provided with a completely different road map for this than me. A discussion about this would likely go no where for both of us. I'd rather avoid that painful ordeal. I do not owe you my trauma, I do not owe you my sexuality, I do not owe you my soul. If you try discussing this with me on ponytown, you will be hidden for at least 24 hours. Either way, please try to use some kindness and sense before talking to me.</b><br>
-Essay canceled! I'm just not as passionate about it anymore. I might be writing more personal essays though :) so stay tuned for that. Anyways, thank you for reading! Unless you read this while thinking about what a disgusting freak you think I am, then I am only mildly disheartened. <br>
 ﹉﹉﹉﹉﹉୨♡୧﹉﹉﹉﹉﹉ <br>
 <img src="https://i.pinimg.com/originals/17/cc/f7/17ccf7cae2ab7551a2295bd293077705.gif">
 <br>
-I'm an essay writer in my free time... whenever I get around to it! <b>Ethics of Internet Youth Community Conflict</b> is my commentary on how harm is handled and perpetuated in our community. You can read it here: https://rentry.co/EthicsofConflictinanOnlineCommunity . Other essays will be on my main rentry page. -->  https://rentry.co/mainpagedev <br>
-if you have any questions or recomendations feel free to say them on my Strawpage. I check rather regularly, but sometimes it might take a day or so!<br>
-https://mentaidickwad.straw.page<br>
+ <b>Ethics of Internet Youth Community Conflict</b> is my commentary on how harm is handled and perpetuated in our community. You can read it here: https://rentry.co/EthicsofConflictinanOnlineCommunity . <br>
 ﹉﹉﹉﹉﹉୨♡୧﹉﹉﹉﹉﹉ <br>
               ♡ˊˎ- <br>
 <img src="https://images.squarespace-cdn.com/content/v1/5ab672d7cef372a1b79a472a/1614888578619-4Z0H7K2R0DODRK56KPTB/007+Pierre+-+Board+Book+.jpg" height="500">
