@@ -1,14 +1,14 @@
 <img src="https://i.pinimg.com/564x/cf/ea/fd/cfeafdcdc515c34a4c5923bc6a045b9f.jpg">
 ‍ㅤ            ﹒    @Devin Archer!  ﹕☆ <br>
-               　    ☆　┈ @Can also be called Mr./Ms. Philosopher Stone.edu (formally), Stone <br>
-ㅤ         ﹟    any pronouns ㅤ:: 7teen 🧶<br>
+               　    ☆　┈ @Can also be called Mr./Ms. Philosopher Stone.edu (formally), Stone, or Princeton <br>
+ㅤ         ﹟    any pronouns, she/her pref ㅤ:: 7teen 🧶<br>
                    :   🎟 Writer ! Artist ! profiction﹐<br>
   　    ☆　┈ @SE.Asian American<br>
   　 ˑ    𓂂    🇵🇭     ͡   ͡  <br>
 
  ![VisitCounter](https://komarev.com/ghpvc/?username=devinArcher&color=yellowgreen&label=Page+Visits+since+11/2/2/2024&abbreviated=true)
 <br>
-       ୨୧ I like to touch grass now, so i see no need for a bio. I do not respond to people who do not do whats best for themselves, come back to me when you love yourself. blehhhh!! I don't shut up, I grow up, and when I--<br>
+       ୨୧ Ponytown does not absorb my life as much as it did before, so I do not see the need for an extensive bio. I do not respond to people who do not do whats best for themselves, come back to me when you can learn to have mercy and love for yourself. Read my strawpage for more info about me! <br>
                 ﹉﹉﹉﹉﹉୨♡୧﹉﹉﹉﹉﹉ <br>
 <img src="https://i.pinimg.com/originals/74/58/a6/7458a6c41e2a77795869742c1aaf11c3.gif">
  <br>
