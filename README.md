@@ -15,7 +15,7 @@
 ﹉﹉﹉﹉﹉୨♡୧﹉﹉﹉﹉﹉ <br>
 <img src="https://i.pinimg.com/originals/17/cc/f7/17ccf7cae2ab7551a2295bd293077705.gif">
 <br>
- <b>Ethics of Internet Youth Community Conflict</b> is my commentary on how harm is handled and perpetuated in our community. You can read it here: https://rentry.co/EthicsofConflictinanOnlineCommunity . <br>
+ <b>Ethics of Internet Youth Community Conflict</b> is my old essay on how harm is handled and perpetuated in our community. You can read it here if you'd like! there's some things i'd change but I think it's worth keeping out: https://rentry.co/EthicsofConflictinanOnlineCommunity . <br>
 ﹉﹉﹉﹉﹉୨♡୧﹉﹉﹉﹉﹉ <br>
               ♡ˊˎ- <br>
 <img src="https://images.squarespace-cdn.com/content/v1/5ab672d7cef372a1b79a472a/1614888578619-4Z0H7K2R0DODRK56KPTB/007+Pierre+-+Board+Book+.jpg" height="500">
