@@ -1,13 +1,17 @@
-<p display: inline-block;> <img src="https://newcriterion.com/wp-content/uploads/2024/07/Vladimir-Nabokov-0-43-1181-967-1618560805-1024x838.jpeg" width="300" height=auto> <img src="https://aaregistry.org/wp-content/uploads/2009/09/alexander-pushkin.jpg" width="250" height=auto>  <img src="https://upload.wikimedia.org/wikipedia/commons/5/5d/Mikhail_Kuzmin_circa_1911.jpg" width="180" height=auto> <img src="https://upload.wikimedia.org/wikipedia/commons/7/7a/Mikhail_Petrovich_Artsybashev_2.jpg" width="180" height=auto> These are my ladies... this is Nabokov, this is my lady Pushkin... [...] Kuzmin, I dream of her. Artsybashev, this is Artsybashev right here (now, is Artsybashev-- is that you're-- uh...) dirty girl. </p> 
-· · ─ ·✶· ─ · ·
-<br>
-Hi! My name is Devin Archer and I'm you're typical boygirl. <br> I like Russian literature and literature in general, I'm anarchist, I'm 17, I don't really like Ponytown very much anymore, but I come to socialize when I want company or parallel play. I'll talk to people that don't urk me. I really detest pointless discourse, that thing you guys do where you complain about online drivel, I'll be tuning that out most if not all the time. <br>
-ㅤ ׅ 𝄂𝄚𝅦𝄚𝄞𝅄ㅤ <br>
-Do talk to me! I like to talk about things I enjoy, I like to ask myself and other people questions. Although I dislike discourse, I do like giving my two cents on things if it's something I've never heard people discuss before, so don't be afraid to discuss on my ATA! <br>
-ㅤ ׅ 𝄂𝄚𝅦𝄚𝄞𝅄ㅤ <br>
-I honestly would prefer you ask or tell me what your favorite fruit is, or what author you'd have brunch with, or what character. (I'd personally have brunch with Kinbote because he's a handsome neurotic devil with the same glazing-authors instinct I have. He also isn't a very good writer, so we have that in common aswell.) Thank you for stopping by! Don't be scared to talk to me! I'm very friendly! I swear! And if you want to learn a little bit about my persona I larp as for many of the answers, Pushkin, his info can be found here; https://pushkinsbio.straw.page/ . And then my short bio with Hetalia ships; https://pushkinsbio.straw.page/pushkinsdadpage . Do note, he (and I) only reply on ATAbook.
+<p align="center"> <img src="https://64.media.tumblr.com/9525734acabbb9281afbc6e6b792eab6/99b5756df3518eec-2d/s500x750/5e459e300221cc15a6cbf4d0ce37f32e66a6e4e8.gifv"> </p>
+<p align="center"> · · ─ ·✶· ─ · · </p>
+
+| <img src="https://i.pinimg.com/736x/c8/d5/2b/c8d52bbfdc265a773faf89638bc803cb.jpg">             | 𝐝𝐚𝐫𝐨𝐠𝐚 . . . 𝐚𝐧𝐝 𝐈 𝐚𝐦 𝐝𝐲𝐢𝐧𝐠 𝐨𝐟 𝐥𝐨𝐯𝐞 𝐟𝐨𝐫 𝐡𝐞𝐫, 𝐈 ... 𝐈 𝐭𝐞𝐥𝐥 𝐲𝐨𝐮! ... 𝐈𝐟 𝐲𝐨𝐮 𝐤𝐧𝐞𝐰 𝐡𝐨𝐰 𝐛𝐞𝐚𝐮𝐭𝐢𝐟𝐮𝐥 𝐬𝐡𝐞 𝐰𝐚𝐬 . . . 𝐰𝐡𝐞𝐧 𝐬𝐡𝐞 𝐥𝐞𝐭 𝐦𝐞 𝐤𝐢𝐬𝐬 𝐡𝐞𝐫 . . . 𝐚𝐥𝐢𝐯𝐞. . . . 𝐈𝐭 𝐰𝐚𝐬 𝐭𝐡𝐞 𝐟𝐢𝐫𝐬𝐭 . . . 𝐭𝐢𝐦𝐞, 𝐝𝐚𝐫𝐨𝐠𝐚, 𝐭𝐡𝐞 𝐟𝐢𝐫𝐬𝐭 . . . 𝐭𝐢𝐦𝐞 𝐈 𝐞𝐯𝐞𝐫 𝐤𝐢𝐬𝐬𝐞𝐝 𝐚 𝐰𝐨𝐦𝐚𝐧. . . . 𝐘𝐞𝐬, 𝐚𝐥𝐢𝐯𝐞. . . . 𝐈 𝐤𝐢𝐬𝐬𝐞𝐝 𝐡𝐞𝐫 𝐚𝐥𝐢𝐯𝐞 . . . 𝐚𝐧𝐝 𝐬𝐡𝐞 𝐥𝐨𝐨𝐤𝐞𝐝 𝐚𝐬 𝐛𝐞𝐚𝐮𝐭𝐢𝐟𝐮𝐥 𝐚𝐬 𝐢𝐟 𝐬𝐡𝐞 𝐡𝐚𝐝 𝐛𝐞𝐞𝐧 𝐝𝐞𝐚𝐝 ! . . .  |
+| ------------- | ------------- |
+<p align="center"> · · ─ ·✶· ─ · · </p>
+
+|  <p align="left"> Devin Archer! -ˋˏ✄┈┈┈┈ reader and writer! -ˋˏ✄┈┈┈┈  12/6/2007-ˋˏ✄┈┈┈┈ <br>  ׅ 𝄂𝄚𝅦𝄚𝄞𝅄ㅤ <br> Do talk to me! I like to talk about things I enjoy, I like to ask myself and other people questions. <br>ㅤ ׅ 𝄂𝄚𝅦𝄚𝄞𝅄ㅤ <br> I love talking to people about their strange visions and freaky interpretations of literature... Are you perhaps a lover of pool toys? Man of peculiar and animal-like behavior enjoyer? Maybe you like the idea of creating a man out of pieces of local cemetary's corpses, giving him life, casting him away, and then having homo-erotic tension with your monster son? Then lets chat! Only people in my age group... remember to stay safe! I am a stranger, do not be familiar with me unless I make you familiar. </p> |      <img src="https://i.pinimg.com/1200x/2d/e1/e0/2de1e05a7a160f8efa2570880c466c73.jpg">             |
+| ------------- | ------------- |
+| Content Cell  | Content Cell  |
+| Content Cell  | Content Cell  | 
+
 <br> 
- <b>Ethics of Internet Youth Community Conflict</b> is my old essay on how harm is handled and perpetuated in our community. You can read it here if you'd like! there's some things i'd change but I think it's worth keeping out: https://rentry.co/EthicsofConflictinanOnlineCommunity . <br>
+ <b>Ethics of Internet Youth Community Conflict</b> is my old essay on how harm is handled and perpetuated in our community. I'm not too fond of it, but you can read it here if you'd like! there's some things i'd change but maybe you'll get some use from it: https://rentry.co/EthicsofConflictinanOnlineCommunity . <br>
 ﹉﹉﹉﹉﹉୨♡୧﹉﹉﹉﹉﹉ <br>
          ﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍
  <br>
