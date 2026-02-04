@@ -14,17 +14,11 @@ https://github.com/user-attachments/assets/908a64da-9f65-40e0-ac9e-cefb0ecee7dc
 | ------------- | ------------- |
 <p align="center"> · · ─ ·✶· ─ · · </p>
 
-|  <p align="left"> Devin Archer! -ˋˏ✄┈┈┈┈ reader and writer! -ˋˏ✄┈┈┈┈ ‼️18‼️-ˋˏ✄┈┈┈┈ <br>  ׅ 𝄂𝄚𝅦𝄚𝄞𝅄ㅤ <br> Do talk to me! I like to talk about things I enjoy, I like to ask myself and other people questions. I scale from crass to pretentious. I'm sorry for both. <br>ㅤ ׅ 𝄂𝄚𝅦𝄚𝄞𝅄ㅤ <br> I love talking to people about their strange visions and freaky interpretations of literature... Are you perhaps a lover of pool toys? Person of peculiar and animal-like behavior enjoyer? I am a stranger, do not be familiar with me unless I make you familiar. No DNI, but I will not tolerate transmisogyny around me. I want to be a safe space for every girl. </p> |      <img src="https://64.media.tumblr.com/6f540329c9251744de81f0341ca17f8a/f350166c7dcdc868-6f/s2048x3072/fc7bb36c9b67faca3da03501ff28f1a7caef1bc5.jpg">             |
+|  <p align="left"> Devin Archer! -ˋˏ✄┈┈┈ illistrator and writer! -ˋˏ✄┈┈┈ ‼️18 : TME‼️ -ˋˏ✄┈┈┈┈ I'm also a sys but tbh none of my alters use PT so it doesn't matter. <br>  ׅ 𝄂𝄚𝅦𝄚𝄞𝅄ㅤ <br> Hi I'm a girl freak. I overshare at docks because I'm bored and an attention seeking misile. Any girls? Anywhere at all? can I get a scratch? even a pet? <br>ㅤ ׅ 𝄂𝄚𝅦𝄚𝄞𝅄ㅤ <br> I have an assortment of fetishes and what I can't fetishize personally I will still talk about with those who do enjoy it. Uhm. Other than sex I like to write about trauma and my OCD, through the lense of my barely disguised fetishes. No DNI, but I will not tolerate transmisogyny around me. I want to be a safe space for every girl. </p> |      <img src="https://64.media.tumblr.com/6f540329c9251744de81f0341ca17f8a/f350166c7dcdc868-6f/s2048x3072/fc7bb36c9b67faca3da03501ff28f1a7caef1bc5.jpg">             |
 | ------------- | ------------- |
 | <img width="300" src="http://atfa.transform.to/gallery/albums/album52/KaijuTF.jpg"> | <img width="350" src="https://64.media.tumblr.com/0dab2aa3b0e0fcbdeb7eb473c4305a6f/2b48d6ae63a11ac5-09/s2048x3072/0db96c2f3f2637a929359452e8dada84eb7b200f.gifv"> <br> "𝘽𝙚𝙘𝙤𝙢𝙚 𝙨𝙞𝙨𝙩𝙚𝙧𝙨" 𝙮𝙤𝙪 𝙨𝙖𝙮? 𝙞𝙣𝙩𝙚𝙧𝙚𝙨𝙩𝙞𝙣𝙜｡｡｡ 𝙝𝙖𝙫𝙚 𝙢𝙮 𝙢𝙤𝙩𝙝𝙚𝙧 𝙛𝙪𝙘𝙠 𝙮𝙤𝙪𝙧 𝙢𝙤𝙩𝙝𝙚𝙧｡ <br> <img width="350" src="https://64.media.tumblr.com/96c89bc397939028c131f49fab9c2198/2b48d6ae63a11ac5-3c/s2048x3072/3f8d6c6351fc5dbaf713f0cba1ddee74093599b0.gifv"> |
 | "redoin" | <img src="--">  | 
 
 <br> 
- <b>Ethics of Internet Youth Community Conflict</b> is my old essay on how harm is handled and perpetuated in our community. I'm not too fond of it, but you can read it here if you'd like! there's some things i'd change but maybe you'll get some use from it: https://rentry.co/EthicsofConflictinanOnlineCommunity . <br>
+ Graveyard for my <b>Ethics of Internet Youth Community Conflict</b> essay I wrote 2 years ago or somethin. Might write another essay on a different topic, will certainly proof read it better. https://rentry.co/EthicsofConflictinanOnlineCommunity . <br>
 ﹉﹉﹉﹉﹉୨♡୧﹉﹉﹉﹉﹉ <br>
-         ﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍﹍
- <br>
-<img src="https://i.pinimg.com/564x/5f/00/13/5f001317a0a3a4e9b8ea63ec9eb8b521.jpg"> <br>
-I have no idea who these tiktok people are but I like posting these pictures I find on pinterest, switching them out everyonce in a while. Because everyone needs a bit of a positive message in their life.<br>
-<img src="https://i.pinimg.com/474x/4e/ba/cd/4ebacd4e9988cd260d51353f9718ea9f.jpg" height="600">
-
