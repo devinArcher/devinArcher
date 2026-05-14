@@ -19,9 +19,12 @@ https://github.com/user-attachments/assets/908a64da-9f65-40e0-ac9e-cefb0ecee7dc
 | <img width="300" src="http://atfa.transform.to/gallery/albums/album52/KaijuTF.jpg"> | <img width="350" src="https://64.media.tumblr.com/0dab2aa3b0e0fcbdeb7eb473c4305a6f/2b48d6ae63a11ac5-09/s2048x3072/0db96c2f3f2637a929359452e8dada84eb7b200f.gifv"> <br> "𝘽𝙚𝙘𝙤𝙢𝙚 𝙨𝙞𝙨𝙩𝙚𝙧𝙨" 𝙮𝙤𝙪 𝙨𝙖𝙮? 𝙞𝙣𝙩𝙚𝙧𝙚𝙨𝙩𝙞𝙣𝙜｡｡｡ 𝙝𝙖𝙫𝙚 𝙢𝙮 𝙢𝙤𝙩𝙝𝙚𝙧 𝙛𝙪𝙘𝙠 𝙮𝙤𝙪𝙧 𝙢𝙤𝙩𝙝𝙚𝙧｡ <br> <img width="350" src="https://64.media.tumblr.com/96c89bc397939028c131f49fab9c2198/2b48d6ae63a11ac5-3c/s2048x3072/3f8d6c6351fc5dbaf713f0cba1ddee74093599b0.gifv"> |
 <br>
 ﹉﹉﹉﹉﹉୨♡୧﹉﹉﹉﹉﹉ 
-<br>
-KOOL KEITH IS MY GOAT OF ALL TIME! Look at my idol card collection of other goats if you want. https://mentaidickwad.straw.page/idolcards 
 
-https://github.com/user-attachments/assets/f9ec8760-071d-4f6c-abd6-c823fd8d18d4
+https://github.com/user-attachments/assets/9518afc5-204a-4fcc-914b-f309ae6b8b59
+
+
+<br> <img src="https://64.media.tumblr.com/017cbd0ade03e8fdcf08a902cc7f680c/7c318399bf42617d-bd/s540x810/490ff2a100cc99ce1932c9ac3742eeb68020d3c8.gifv">
+<br> KOOL KEITH IS MY GOAT OF ALL TIME! Look at my idol card collection of other goats if you want. <br> https://mentaidickwad.straw.page/idolcards 
+<br> <img src="https://64.media.tumblr.com/017cbd0ade03e8fdcf08a902cc7f680c/7c318399bf42617d-bd/s540x810/490ff2a100cc99ce1932c9ac3742eeb68020d3c8.gifv">
 
 ﹉﹉﹉﹉﹉୨♡୧﹉﹉﹉﹉﹉ <br>
